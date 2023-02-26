@@ -1,1 +1,0 @@
-# Cooper is still missing
